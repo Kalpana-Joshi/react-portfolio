@@ -1,1 +1,1 @@
-https://glowing-centaur-b59c66.netlify.app/
+https://myportfolio7079.netlify.app/
